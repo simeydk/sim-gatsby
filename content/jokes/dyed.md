@@ -1,0 +1,1 @@
+My barber talked me out of changing my haircolor. I nearly dyed.
